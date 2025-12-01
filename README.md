@@ -81,8 +81,8 @@ Professional Interests
 
 Contact
 
-LinkedIn: Add your link
-Email: Optional
+LinkedIn: (https://www.linkedin.com/in/hector-hernandez-3872591a8/)
+Email: hectorhernandez9980@gmail.com
 
 ⸻
 
